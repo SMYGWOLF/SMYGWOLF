@@ -1,3 +1,5 @@
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316x5haibkakdwt4smega4k5cjby&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=610303)](https://github.com/kittinan/spotify-github-profile)
+
 ```                         ____________
                       <~~~..........~~~>
                  <~~~~~................~~~~~>

@@ -1,6 +1,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316x5haibkakdwt4smega4k5cjby&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ![](https://komarev.com/ghpvc/?username=SMYGWOLF)
 
+![wolfie wwonton wooooo](https://files.catbox.moe/oyicml.gif)
 ```                         ____________
                       <~~~..........~~~>
                  <~~~~~................~~~~~>

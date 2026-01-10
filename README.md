@@ -2,6 +2,7 @@
 ![](https://komarev.com/ghpvc/?username=SMYGWOLF)
 
 ![wolfie wwonton wooooo](https://files.catbox.moe/oyicml.gif)
+![wolfie wwonton wooooo](https://files.catbox.moe/724gsn.png)
 ```                         ____________
                       <~~~..........~~~>
                  <~~~~~................~~~~~>

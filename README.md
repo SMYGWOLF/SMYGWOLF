@@ -3,6 +3,8 @@
 
 ![wolfie wwonton wooooo](https://files.catbox.moe/oyicml.gif)
 
+![hello friend!](https://files.catbox.moe/vyz1yc.png)
+
 ![wolfie wwonton wooooo](https://files.catbox.moe/724gsn.png)
 
 ```                         ____________

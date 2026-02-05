@@ -1,11 +1,14 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316x5haibkakdwt4smega4k5cjby&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ![](https://komarev.com/ghpvc/?username=SMYGWOLF&label=BANKS+ROBBED&color=dc143c&abbreviated=true)
 
-![wolfie wwonton wooooo](https://files.catbox.moe/oyicml.gif)
+![wolfie wwonton wooooo](https://files.catbox.moe/obndex.gif) ![wolfie wwonton wooooo](https://files.catbox.moe/sn2ic8.gif) 
 
 ![hello friend!](https://files.catbox.moe/vyz1yc.png)
 
 ![wolfie wwonton wooooo](https://files.catbox.moe/724gsn.png)
+
+
+![wolfie wwonton wooooo](https://files.catbox.moe/t0n7kg.gif) ![wolfie wwonton wooooo](https://files.catbox.moe/2e8lpl.gif)
 
 ```                         ____________
                       <~~~..........~~~>

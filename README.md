@@ -3,7 +3,7 @@
 
 ![hi friend](https://files.catbox.moe/hifezi.gif) ![technologic](https://files.catbox.moe/23eseu.gif) ![:D](https://files.catbox.moe/uuacp2.png) 
 
-my name is bentley the homies call me benny and i fucking love fallout and techno
+my name is bentley (sometimes people call me benny but i've went by that before i got into fallout) and i fucking love fallout and techno
 
 
 ![hells yeah](https://files.catbox.moe/umtjea.gif)

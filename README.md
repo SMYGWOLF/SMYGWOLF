@@ -3,7 +3,11 @@
 
 ![hi friend](https://files.catbox.moe/hifezi.gif) ![technologic](https://files.catbox.moe/23eseu.gif) ![:D](https://files.catbox.moe/uuacp2.png) 
 
-my name is bentley (sometimes people call me benny but i've went by that before i got into fallout) and i fucking love fallout and techno
+my name is bentley i <3 electronic music & fallout & adult cartoons
+
+my favorite DJs are Deadmau5 & Daft Punk & Justice & Skrillex :-) 
+
+and my favorite cartoons right now are aqua teen hunger force & the oblongs 
 
 
 ![hells yeah](https://files.catbox.moe/umtjea.gif)
